@@ -4,4 +4,6 @@
 
 <p align="center">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ <a href="https://rentry.co/valleysheep">rentry</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://valleysheep.atabook.org/">ATA</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://en.pronouns.page/@valleysheep">prouns page</a>
+  <p align="center">
+  on <a href="https://github.com/pt-awards">pt awards</a> hoopla!
 </p>
