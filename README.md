@@ -20,8 +20,4 @@
 ‎ 
 
 
-<p align="center">
-
-<img src="https://cdn.discordapp.com/attachments/1108062665827422329/1399509573420847175/image.png?ex=6889425b&is=6887f0db&hm=dababf94770abbfda1f6f7a135b0677fc6a09832a58d29dee25596d79d476cb3" width="370" height="300">
-<p align="center">
-  hi everypoy ive been informed of this pinterest account (thank you <a href="https://github.com/CoId-BIood/">@Cold-Blood</a>) that uploads ponies without permission, please report or comment on their posts to take their acc down, thank you. <a href="https://ph.pinterest.com/Sorarasshj/">this is the account</a> 
+ 
