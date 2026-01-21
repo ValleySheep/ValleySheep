@@ -1,9 +1,10 @@
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=ValleySheep-username&style=flat&color=96a2a3&label=kill+count)
-
 <p align="center">
-<img src="https://i.pinimg.com/736x/1b/29/89/1b298941a4164a4f40ef478bdcd39568.jpg" width="350" height="170">
+  i really love darthfett dont even joke lad
+<p align="center">
+<img src="https://i.pinimg.com/1200x/32/41/35/324135a7c0d918fe7f7ecc76ae834ad0.jpg" width="350" height="170">
 </p>
 
 <p align="center">
@@ -11,15 +12,13 @@
   <p align="center">
 
 </p>
-‎  <p align="center">
-  hi rate this shit
-‎ ‎ ‎ ‎ 
 
-‎ ‎ <img src="https://file.garden/ZrPE2kb_lR-IK-D_/ab301cdf-2.png" width="250" height="420">
-</p>
+‎ <p align="center">
+‎ <img src="https://i.pinimg.com/originals/d6/bb/75/d6bb75c211b54d513bcca3a1e535800f.gif">
 ‎ 
-‎ 
-‎ 
-
+<p align="center">
+im tuff and strong and my name is Savion and i dont interact first
+  <p align="center">
+f1, roblox, star wars, hermitcraft, gossip girl, the white lotus, monster high & snow leopards
 
  
