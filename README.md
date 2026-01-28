@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=ValleySheep-username&style=flat&color=96a2a3&label=kill+count)
 <p align="center">
-  i really love darthfett dont even joke lad
+  darthfett IS CANON  dont even joke lad
 <p align="center">
 <img src="https://i.pinimg.com/1200x/32/41/35/324135a7c0d918fe7f7ecc76ae834ad0.jpg" width="350" height="170">
 </p>
