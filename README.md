@@ -19,6 +19,6 @@
 <p align="center">
 im tuff and strong and my name is Savion
   <p align="center">
-f1, roblox, star wars, the godfather, hermitcraft, unstable smp, gossip girl, the white lotus, monster high & snow leopards
+f1, roblox, star wars, the godfather, sopranos, hermitcraft, unstable smp, gossip girl, the white lotus, monster high & snow leopards
 
  
