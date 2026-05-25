@@ -14,11 +14,6 @@
 </p>
 
 ‎ <p align="center">
-‎ <img src="https://i.pinimg.com/originals/d6/bb/75/d6bb75c211b54d513bcca3a1e535800f.gif">
-‎ 
-<p align="center">
-im tuff and strong and my name is Savion
-  <p align="center">
-f1, roblox, star wars, the godfather, sopranos, hermitcraft, unstable smp, gossip girl, the white lotus, monster high & snow leopards
+‎im never decorating this shit
 
  
