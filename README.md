@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=ValleySheep-username&style=flat&color=96a2a3&label=kill+count)
+![](https://komarev.com/ghpvc/?username=ValleySheep-username&style=flat&color=96a2a3&label=anons)
 <p align="center">
   darthfett IS CANON  dont even joke lad
 <p align="center">
